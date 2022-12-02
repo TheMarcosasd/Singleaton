@@ -1,0 +1,2 @@
+# Singleaton
+jajaajajjajajjajjaajjajaajajaaajajajajajajajajajajaajajajajaajajajajjajajajajajaajajajjajajjajajjjajaajjajajaja
